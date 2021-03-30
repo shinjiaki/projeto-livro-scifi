@@ -1,6 +1,6 @@
 # Capítulo 1
 
-Ficção científica (normalmente abreviado para SF, FC, sci-fi ou scifi) é um gênero da ficção especulativa,
+Ficção científica (normalmente abreviado para sci-fi ou scifi) é um gênero da ficção especulativa,
 
 que normalmente lida com conceitos ficcionais e imaginativos, relacionados ao futuro, ciência e tecnologia,
 
